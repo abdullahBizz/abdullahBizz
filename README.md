@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abdullahBizz
-- 👀 I’m interested in Films, Photgraphy, Poetry and Hacking.
+- 👀 I’m interested in Films, Photography and Poetry
 - 🌱 I’m currently learning a lot
 - 💞️ I’m looking to collaborate on nothin rn
 - 📫 How to reach me (Instagram: @abdullah_bizz)
